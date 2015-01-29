@@ -1,5 +1,5 @@
 # jeep
-My name is **chananchida praseethong**  
+My name is **Chananchida Praseethong**  
 My nickname is **jeep** :blue_car:.  
 My birth date is **23 september 1994** :cake:,:tada:.  
 I'm 20 years old :girl:.  
